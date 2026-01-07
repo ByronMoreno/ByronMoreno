@@ -118,8 +118,7 @@ Estoy abierto a colaborar en proyectos:
 
 📍 Quito, Ecuador  
 💼 GitHub: https://github.com/ByronMoreno  
-
-*www.linkedin.com/in/byron-moreno*
+🔗 LinkedIn: https://www.linkedin.com/in/byron-moreno
 
 ---
 
